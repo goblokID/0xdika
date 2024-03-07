@@ -1,0 +1,2 @@
+# 0xdika
+teatestnet airdrop
